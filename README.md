@@ -6,6 +6,7 @@ TIMM FELIX KLUTH / Magento Freelancer aus Hamburg
 28 Jahre – 10 Jahre Software-Development Erfahrung
 
 Web-Programmierung | E-Commerce | Content-Management-Systeme | Individual-Software
+
 0176 / 54 85 3861 | tfkluth@gmail.com
 
 
